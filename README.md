@@ -1,5 +1,5 @@
 # ⭐️柠檬成人视频⭐️ 最新地址发布 
-![image](https://github.com/avyingtao/dz/raw/master/timg.gif)
+![image](https://raw.githubusercontent.com/nmavdz/nmav/master/timg.gif)
 ## ‼️长按复制到浏览器里面访问网址‼️
 ## ⭐️ 👉 地址一 ：https://nmav2.com
 ## ⭐️ 👉 地址二 ：https://nmav3.com
